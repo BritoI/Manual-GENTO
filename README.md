@@ -9,4 +9,5 @@
  - com o gento instalado voce configure de acordo com seu : indioma,gosto e projetos etc...
  
 3-ultimo passo: depois de pronto se divirta com seu gento virtual :D
-     
+
+   (<Image (6).jfif>)  
