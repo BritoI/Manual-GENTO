@@ -10,4 +10,4 @@
  
 3-ultimo passo: depois de pronto se divirta com seu gento virtual :D
 
-   (<Image (6).jfif>)  
+   
